@@ -1,1 +1,1 @@
-![image](https://github.com/user-attachments/assets/8ba00bae-bc0b-46d9-9ba3-ffcb1169defd)
+![newplot](https://github.com/user-attachments/assets/ae046cc8-1fd9-4248-9d0d-1d08c21ba654)
